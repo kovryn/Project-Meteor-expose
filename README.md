@@ -12,6 +12,7 @@ i know github ogfn things are corny asf now BUT its worth it.
 
 <img width="793" height="283" alt="image" src="https://github.com/user-attachments/assets/a95937b5-5dfb-4b02-a5bb-9c92d926da5f" />
 
-
+# Spreading a celeb deep fake
+<img width="543" height="445" alt="image" src="https://github.com/user-attachments/assets/78d2b566-3346-4ca3-8739-4041c9f5b277" />
 
 
