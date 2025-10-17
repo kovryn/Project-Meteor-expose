@@ -5,7 +5,7 @@ i know github ogfn things are corny asf now BUT its worth it.
 
 # i know dlls are useless, but if u want to play ch5s1, there u go (shouldnt crash)
 
-<img width="1047" height="90" alt="image" src="https://github.com/user-attachments/assets/6d6671f5-4660-4ab5-9db3-aed0454df8f8" />
+<img width="1047" height="90" alt="image" src="https://github.com/user-attachments/assets/6d6671f5-4660-4ab5-9db3-aed0454df8f8" />  - claude.ai (for there website) 
 
 # BEING A 🍕 LOVER 
 
