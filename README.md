@@ -21,3 +21,10 @@ i know github ogfn things are corny asf now BUT its worth it.
 ## Banning me for calling them out 
 <img width="576" height="170" alt="image" src="https://github.com/user-attachments/assets/b593ef10-e1b2-41a0-84e4-bb06e9a52d10" />
 
+# Underground goons
+<img width="102" height="263" alt="image" src="https://github.com/user-attachments/assets/5e185265-8db0-45eb-8e40-c40daa79380c" />
+<img width="399" height="125" alt="image" src="https://github.com/user-attachments/assets/29bfdfcf-0dbd-4f6d-a7f3-84f0fe7a7438" />
+<img width="361" height="79" alt="image" src="https://github.com/user-attachments/assets/1768044e-c032-420b-b995-005c9482fb8c" />
+## Always deny the truth
+
+
