@@ -16,3 +16,8 @@ i know github ogfn things are corny asf now BUT its worth it.
 # Smartest ogfn dev
 <img width="281" height="155" alt="image" src="https://github.com/user-attachments/assets/1f8d6b8e-a528-4467-a5b7-dff7e3b873f1" />
 
+# Hiding the truth
+<img width="603" height="560" alt="image" src="https://github.com/user-attachments/assets/fd611237-1096-44a4-ad9c-7f32b3c5cbf1" />
+## Banning me for calling them out 
+<img width="576" height="170" alt="image" src="https://github.com/user-attachments/assets/b593ef10-e1b2-41a0-84e4-bb06e9a52d10" />
+
