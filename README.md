@@ -16,9 +16,4 @@ i know github ogfn things are corny asf now BUT its worth it.
 
 
 
-other guy that "sent it" or sum 
 
-
-<img width="444" height="224" alt="image" src="https://github.com/user-attachments/assets/4d1ab5cb-73bf-4b8b-9cd4-3d8628678522" />
-
-<img width="669" height="425" alt="image" src="https://github.com/user-attachments/assets/06d41473-6507-406d-8e66-1fd7eea2075e" />
