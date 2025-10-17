@@ -1,7 +1,6 @@
 # Behind the scenes at Project Underground
 i know github ogfn things are corny asf now BUT its worth it.
 # will be updated when more proof or i get more info <3
-# SKIDDING 
 
 # BEING A 🍕 LOVER 
 
@@ -14,4 +13,6 @@ i know github ogfn things are corny asf now BUT its worth it.
 # Spreading a celeb deep fake
 <img width="543" height="445" alt="image" src="https://github.com/user-attachments/assets/78d2b566-3346-4ca3-8739-4041c9f5b277" />
 
+# Smartest ogfn dev
+<img width="281" height="155" alt="image" src="https://github.com/user-attachments/assets/1f8d6b8e-a528-4467-a5b7-dff7e3b873f1" />
 
