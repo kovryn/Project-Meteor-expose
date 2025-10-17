@@ -32,4 +32,5 @@ i know github ogfn things are corny asf now BUT its worth it.
 
 ## Always deny the truth
 
+<img width="421" height="112" alt="image" src="https://github.com/user-attachments/assets/ab80b08e-e47b-4f42-a8b4-d418cbe35bca" />
 
