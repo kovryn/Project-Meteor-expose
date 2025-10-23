@@ -18,6 +18,12 @@ Stay tuned. 💌
 
 <img width="381" height="214" alt="Pizza 3" src="https://github.com/user-attachments/assets/15bbd1ea-0687-4852-9331-1a452c1de84e" />
 
+# Pongo section 💖
+
+<img width="444" height="224" alt="image" src="https://github.com/user-attachments/assets/03748134-dcc9-443d-acb0-f5f242661fb7" />
+
+<img width="161" height="350" alt="image" src="https://github.com/user-attachments/assets/42774315-a68f-4eb0-8a98-14db6ac56a11" />
+
 ---
 
 ## 🎭 Spreading a **Celebrity Deepfake**
