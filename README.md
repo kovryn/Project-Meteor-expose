@@ -22,6 +22,11 @@ Stay tuned. 💌
 
 <img width="161" height="350" alt="image" src="https://github.com/user-attachments/assets/42774315-a68f-4eb0-8a98-14db6ac56a11" />
 
+# Faking messages btw
+
+<img width="522" height="198" alt="image" src="https://github.com/user-attachments/assets/9e978fb6-d0fa-4f68-8509-8aa5e8c6aec9" />
+
+
 ---
 
 ## 🎭 Spreading a **Celebrity Deepfake**
