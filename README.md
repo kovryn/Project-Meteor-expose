@@ -14,6 +14,8 @@ Stay tuned. 💌
 
 <img width="793" height="283" alt="Pizza 2" src="https://github.com/user-attachments/assets/a95937b5-5dfb-4b02-a5bb-9c92d926da5f" />
 
+<img width="161" height="350" alt="image" src="https://github.com/user-attachments/assets/42774315-a68f-4eb0-8a98-14db6ac56a11" />
+
 <img width="381" height="214" alt="Pizza 3" src="https://github.com/user-attachments/assets/15bbd1ea-0687-4852-9331-1a452c1de84e" />
 
 ---
