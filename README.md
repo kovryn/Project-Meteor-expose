@@ -22,6 +22,8 @@ Stay tuned. 💌
 
 <img width="161" height="350" alt="image" src="https://github.com/user-attachments/assets/42774315-a68f-4eb0-8a98-14db6ac56a11" />
 
+<img width="669" height="425" alt="image" src="https://github.com/user-attachments/assets/2ec1da79-1cd5-4d0c-a292-984594222713" />
+
 # Faking messages btw
 
 <img width="522" height="198" alt="image" src="https://github.com/user-attachments/assets/9e978fb6-d0fa-4f68-8509-8aa5e8c6aec9" />
