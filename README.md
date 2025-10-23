@@ -1,4 +1,4 @@
-# 🚨 Behind the Scenes at **Project Underground**
+# 🚨 Behind the Scenes at **Project Meteor**
 
 > Yeah, I know—**GitHub OGFN exposés** are kinda corny now.
 > But trust me, **this one's worth it.**
@@ -55,3 +55,5 @@ Stay tuned. 💌
 ## 🧼 Always Deny Everything
 
 <img width="421" height="112" alt="Denying the truth" src="https://github.com/user-attachments/assets/ab80b08e-e47b-4f42-a8b4-d418cbe35bca" />
+
+## More soon
