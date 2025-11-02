@@ -28,6 +28,11 @@ Stay tuned. 💌
 
 <img width="522" height="198" alt="image" src="https://github.com/user-attachments/assets/9e978fb6-d0fa-4f68-8509-8aa5e8c6aec9" />
 
+# SINS BAD BOY
+
+<img width="326" height="86" alt="image" src="https://github.com/user-attachments/assets/046f647a-dd05-4883-a560-202b033534fc" />
+
+
 
 ---
 
